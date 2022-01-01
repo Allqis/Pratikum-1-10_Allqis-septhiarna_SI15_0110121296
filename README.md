@@ -1,0 +1,1 @@
+# Pratikum-1-10_Allqis-septhiarna_SI15_0110121296
